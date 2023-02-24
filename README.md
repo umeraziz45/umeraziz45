@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **umeraziz4545@gmail.com**
 
-- :man_cook: Fun fact **I make a great Aglio e Olio**
+- :man_cook: Fun fact **I make a great Aglio e Olio!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
